@@ -1,4 +1,3 @@
-# 李雨涛
 ### Hi there 👋 This... It's me? Okay.
 - 👋 Hi, I’m @lee-yutao
 - 👀 I’m interested in ...
